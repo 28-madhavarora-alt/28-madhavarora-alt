@@ -1,6 +1,6 @@
-## Hi there 👋
 
-<!--# Hi, I'm Madhav Arora! 👋
+
+ Hi, I'm Madhav Arora! 👋
 
 🎓 PGDM Student | 📈 Aspiring Marketing Professional | 🤖 AI Enthusiast | 🏆 Sports Enthusiast
 
